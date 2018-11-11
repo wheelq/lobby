@@ -14,3 +14,4 @@ You can also find us at the following places:
 
 * [Twitter](https://twitter.com/gnucitizen)
 * [Facebook](https://facebook.com/gnucitizen)
+* [YouTube](https://www.youtube.com/user/gnucitizen)
